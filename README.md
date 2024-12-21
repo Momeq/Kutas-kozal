@@ -1,0 +1,2 @@
+# Kutas-kozal
+Typowo B)
